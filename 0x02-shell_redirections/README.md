@@ -1,1 +1,1 @@
-school is an amazing thing
+school is amazing
