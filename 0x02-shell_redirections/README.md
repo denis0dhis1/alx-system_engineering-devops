@@ -1,1 +1,1 @@
-school is amazing
+school is important
