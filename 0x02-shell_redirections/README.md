@@ -1,1 +1,1 @@
-school is important
+host file
