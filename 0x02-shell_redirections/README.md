@@ -1,1 +1,1 @@
-Software engineering is intresting
+school is amazing
